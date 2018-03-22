@@ -1,2 +1,3 @@
 to jest pierwszy plik 
 w nazwie zamiast spacji lepiej użyć podłogi ________
+to jest edit wow
