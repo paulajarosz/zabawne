@@ -3,3 +3,4 @@ tu jest zabawny content
 stram się bardzo nadążyć za nowymi trendami memowymi
 lallalalallalalalallalalallalalallalalalallalalallalalallalalalallalalallalalallalalalallalalallalalallalalalallalalallalalallalalalallalalallalalallalalalallalalallalalallalalalallalalallalalallalalalallalalallalalallalalalallalalallalalallalalalallala
 *lalalla* **hahahaha** **śmiesznie**
+i tak nie nadązysz
